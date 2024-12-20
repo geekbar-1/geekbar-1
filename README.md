@@ -1,5 +1,5 @@
 # 💫 About Me:
-my name is taylor<br><br>i am a learning FiveM devloper <br><br>i am currently making a FiveM server called GMT<br><br>come and join<br><br>discord.gg/gmt5m
+my name is taylor<br><br>i am a learning FiveM devloper <br><br>i am currently making a FiveM server called GMT<br><br>come and join<br><br>discord.gg/gmtrp
 
 
 ## 🌐 Socials:
